@@ -15,6 +15,8 @@ Over summer I listened to:
 - *Gable Price and Friends*
 - *Zach Bryan*
 
+I enjoy these artists because there is something for whatever mood I am feeling in the moment.
+
 ## Most Memorable Experience
 Some of my favorite summer memories were in Thailand. It was a very special trip and I will never forget it. We went to villages and schools, helping kids stay safe. 
 
